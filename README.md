@@ -40,4 +40,4 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 ## Contact Us
 If you have any questions about this Privacy Policy, contact us at:
 
-Email: aqibdeveloper@gmail.com
+Email: aqiibmalik20@gmail.com
